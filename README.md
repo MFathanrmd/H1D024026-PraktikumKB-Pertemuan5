@@ -1,0 +1,2 @@
+# H1D024026-PraktikumKB-Pertemuan5
+SISTEM PAKAR
